@@ -1,10 +1,1 @@
-# TODAY´S LECTURE
-
-
->“When he shall die,
-Take him and cut him out in little stars,
-And he will make the face of heaven so fine
-That all the world will be in love with night
-And pay no worship to the garish sun.”
-― William Shakespeare, Romeo and Juliet
-
+[https://open.spotify.com/playlist/6WvA9zOIFyiZjA723i6hvT?si=99586ed898f64935]
